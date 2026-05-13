@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with instant nft mint bot | NFT-sniping + multi-wallet-support, the #1 nft mint bot. Includes NFT-sniping and multi-wallet-support for a faster and more
 
 
 
